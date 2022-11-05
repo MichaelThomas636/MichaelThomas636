@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MichaelThomas636
+- 👋 Hi, I’m Michael Thomas
 - 📫 How to reach me MichaelThomas636x@gmail.com
 
 <!---
